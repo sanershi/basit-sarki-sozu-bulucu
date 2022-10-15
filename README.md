@@ -1,0 +1,1 @@
+# basit-sarki-sozu-bulucu
